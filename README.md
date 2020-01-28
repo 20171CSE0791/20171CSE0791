@@ -1,2 +1,2 @@
-ip lab 2
-bjbvsbvkslvb
+boring class
+very boring class
