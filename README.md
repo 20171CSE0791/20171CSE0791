@@ -1,7 +1,5 @@
-boring class
-very boring class
+it lab is very interesting
 
 
 
 
-neymar is from brazil
